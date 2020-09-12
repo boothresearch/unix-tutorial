@@ -1,0 +1,1 @@
+this would be a reasonable place to put frodo if I were following the story, but then it would be too easy for you. So here's some stuff for your grep to find. the ring! frodo! sam! gollum! The Ring! Frodo! Sam! Gollum! 
